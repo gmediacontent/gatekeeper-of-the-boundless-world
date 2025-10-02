@@ -1,1 +1,2 @@
-# gatekeeper-of-the-boundless-world
+# Gatekeeper Of The Boundless World
+Des planètes s'éteignent, des dieux tombent. « Anomalies » et « Calamités » envahissent le monde des humains. Alors qu'un âge sombre s'installe, Shen Ye se retrouve propulsé dans cette étrange réalité. À sa grande surprise, son pouvoir lui permet d'invoquer une porte – une porte menant à d'innombrables mondes, lui offrant l'opportunité de s'aventurer et de s'entraîner à travers le multivers ! Au-delà de la porte, il rencontre un mystérieux squelette au passé inconnu…
